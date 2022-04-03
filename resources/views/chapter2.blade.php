@@ -1,0 +1,6 @@
+Summary: Chapter II
+The narrator feels lonely his whole life until one day, six years before he tells his story, he crashes his plane in the middle of the Sahara desert. As the situation is beginning to look dire, the pilot is shocked to hear an odd little voice asking him to draw a sheep. He turns to see the little prince. The prince looks like a small, blond child, but he stares intently at the pilot without the fear that a child lost in the desert would have. 
+
+The pilot does not know how to draw a sheep, so instead he sketches Drawing Number One, and he is astounded when the little prince recognizes it as a picture of an elephant inside a boa constrictor. The little prince rejects Drawing Number One, insisting that he needs a drawing of a sheep. 
+
+After drawing three different sheep that the prince rejects, the pilot finally draws a box and gives it to the little prince. He says that the box contains exactly the type of sheep for which he is looking. This drawing makes the little prince very happy. The prince wonders if the sheep will have enough grass to eat, explaining that the place where he lives is quite small.
